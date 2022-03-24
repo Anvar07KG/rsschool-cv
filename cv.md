@@ -55,3 +55,9 @@ I'm currently studying at **rs-school**.
 My level of English is between A1 and A2, but I'm in the process of learning this language.
 
 ---
+
+**My contacts:**
+
+- **Phone:** +996702291410
+- **E-mail:** anvaranarbekov@mail.ru
+- **Telegram:** Anvar Anarbekov
